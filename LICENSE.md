@@ -1,4 +1,4 @@
-# 
+# vip new token sniper bot | stop-loss + multi-wallet-support offers the most advanced new token sniper bot, with stop-loss and multi-wallet-support. Ideal for professional MEV and
 
 
 
